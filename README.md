@@ -1,4 +1,4 @@
-# hello-world
+# Roselyn S. Ramos
 
 Hi! My name is Roselyn S. Ramos, currently living in Cambinocot, Cebu City.
 I studied in University Of Cebu main campus taking up Bachelor of Science in Information and Technology. 
